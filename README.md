@@ -14,7 +14,9 @@ Email: fun88one@gmail.com
 
 Social:
 Tumblr: https://fun88one.tumblr.com/
+
 Instagram: https://www.instagram.com/fun88one/
+
 Linkedin: https://www.linkedin.com/in/fun88one/
 
 Hastag: #fun88one #fun88 #nha_cai_fun88 #fun88126 #link_fun88
